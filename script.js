@@ -160,13 +160,6 @@ poetry hidden in an ordinary place.
 The kind of person who makes the world feel brighter
 without ever trying to be.
 
-She has a gentle heart,
-a sensitive soul that notices the things
-most people pass by without seeing.
-Her mind is a universe of endless dimensions,
-complex, thoughtful and beautiful in ways
-that can't be captured all at once.
-
 She's talented in more ways than she knows.
 And her drawings are like windows into her inner world,
 portals revealing pieces of her depth.
